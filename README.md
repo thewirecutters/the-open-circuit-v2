@@ -1,7 +1,7 @@
 The Open Circuit: Unshakable Deterministic Response Engine for Critical Systems
 
 
-FUCK ITAR 🖕 FUCK AI FUCK AMERICA 
+FUCK ITAR 🖕 FUCK AI 🖕 FUCK GOVERNMENTS 🖕 AND MOST IMPORTANTLY FUCK POLITICS 🫴🫟
 
 inviting all parasites to come over I'll gladly leave you dumbfoundead
 
